@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Clint Hunter
 - 👀 I’m interested in coding and anything to do with computing basically.
-- 🌱 I’m currently learning how to use GitHub and basic coding.
+- 🌱 I’m currently learning how to use GitHub and basic coding but also know how to root Android phones. 
 - 💞️ I’m looking to collaborate on anything just trying to contribute to my community as best as I can in all ways possible.
 - 📫 How to reach me blessings4romgod@gmail.com 
 
